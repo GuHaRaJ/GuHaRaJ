@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @GuHaRaJ
 - hungry to learn more....🧨🧨🧨🧨🧨
-- 👀 I’m am a Live, breathe, and code kind of person
-- 😄 Pronouns:ZLATANSTA...🔥🔥🔥🔥🔥🔥🔥
+   🔥🔥🔥🔥🔥🔥🔥
 
  
 <!---
